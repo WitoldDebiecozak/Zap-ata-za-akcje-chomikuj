@@ -1,0 +1,1 @@
+# Zap-ata-za-akcje-chomikuj
